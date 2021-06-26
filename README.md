@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kullix
+- 👀 I’m interested in balls
+- 🌱 I’m currently learning the diameter of ur mom
+- 💞️ I’m looking to collaborate on the anatomy of ur mom
+- 📫 How to reach me Kullix#7248
